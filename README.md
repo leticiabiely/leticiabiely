@@ -1,4 +1,4 @@
-## Hi there 👋
+## Olá eu sou a Leticia 🦋 Mas pode me chamar de Letty✨
 
 <!--
 **leticiabiely/leticiabiely** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
